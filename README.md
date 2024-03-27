@@ -2,7 +2,7 @@
 - 👀 I’m interested in machine learning
 - 🌱 I’m currently learning machine learning
 - 💞️ I’m looking to collaborate on programming
-- 📫 How to reach me through my youtube channel @saimsajid7106
+- 📫 How to reach me through my youtube channel @saimsajid974
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am a genius
 
